@@ -1,1 +1,1 @@
-# Note.App Cyrie Hannanael G. Tee
+# Note.App by Cyrie Hannanael G. Tee
